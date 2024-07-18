@@ -8,10 +8,15 @@ Nikolova-Stoupak, Iglika, Eva Schaeffer-Lacroix, and Gaël Lejeune (2024).“Ext
 Utilised texts: 
 
 •  English - Alice in Wonderland - Full 1
+
 Carroll, Lewis. Alice’s Adventures in Wonderland. Project Gutenberg, 1865.
+
 •  English - Alice in Wonderland - Abridged 1
+
 Carroll, Lewis. Alice’s Adventures in Wonderland. Abridged edition, edited by J. Bassett, Oxford University Press, 2000. (Original work published 1865)
+
 •  English - Alice in Wonderland - Abridged 2
+
 Carroll, Lewis. Alice’s Adventures in Wonderland. Abridged edition, Sam’l Gabriel Sons and Company, 1916. (Original work published 1865)
 •  English - A Christmas Carol - Full 1
 Dickens, Charles. A Christmas Carol. The Baker & Taylor Company, 1843.
