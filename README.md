@@ -235,22 +235,6 @@ Carroll, Lewis. Alisa v Strane chudes. Abridged edition, edited by L. Yahnin, Ek
 
 Carroll, Lewis. Alisa v Strane chudes. Abridged edition, Eksmo, 2018. (Original work published 1865)
 
-•  Russian - A Christmas Carol - Full 1
-
-Dickens, Charles. Rozhdestvenskaya pesen v proze. Translated by S. M. Dolgov, Runivers, 1891. (Original work published 1843)
-
-•  Russian - A Christmas Carol - Abridged 1
-
-Dickens, Charles. Rozhdestvenskaya pesen v proze. Abridged edition, edited by T. Ozerskaya, ACT, 2021. (Original work published 1843)
-
-•  Russian - Don Quixote - Full 1
-
-Cervantes, Miguel de. Don Kihot. Edited by B. A. Krevskov and A. A. Smirnov, Academia, 2003. (Original work published 1605)
-
-•  Russian - Don Quixote - Abridged 1
-
-Cervantes, Miguel de. Don Kihot. Engeldandt. (Original work published 1605)
-
 •  Russian - Madame Bovary - Full 1
 
 Flaubert, Gustave. Gospozha Bovari. Translated by A. Chebotarevski, Klub semeynovo dosuga, 2011. (Original work published 1857)
