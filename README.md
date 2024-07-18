@@ -59,7 +59,7 @@ Hugo, Victor. Les Miserables. Translated by C. E. Wilbour, edited by F. M. Coope
 
 Flaubert, Gustave. Madame Bovary. Translated by E. Marx-Aveling, Project Gutenberg, 2006. (Original work published 1857)
 
-•  English - Madame Bovary - Abridged 1
+•  English - Madame Bovary - Full 2
 
 Flaubert, Gustave. Madame Bovary. Global Grey. (Original work published 1857)
 
