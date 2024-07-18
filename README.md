@@ -376,6 +376,7 @@ Shakespeare, William. Romeo y Julieta. Biblioiteca digital universal, 2003. (Ori
 Shakespeare, William. Romeo y Julieta. Abridged edition, edited by E. O’Callaghan, Almadraba, 2009. (Original work published 1597)
 
 •  Spanish - Romeo and Juliet - Abridged 2
+
 Shakespeare, William. Romeo y Julieta. Abridged edition, translated by A. L. Pujalte, educ.ar. (Original work published 1597)
 
 •  Spanish - The Adventures of Tom Sawyer - Full 1
